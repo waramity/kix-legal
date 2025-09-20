@@ -14,7 +14,8 @@ KiX is a Bangkok-based streetwear and sports fashion brand offering limited edit
 ## Contact
 
 - Instagram: [@kix_killsinstinctxecute](https://www.instagram.com/kix_killsinstinctxecute/)
-- Facebook: [KiX Bangkok](https://www.facebook.com/profile.php?id=61571289914876)
+- Facebook: [No Rules Just KiX](https://www.facebook.com/norulesjustKiX/)
+- Shopee: [KiX Official Store](https://s.shopee.co.th/6VEcNEnaAC)
 
 ---
 
